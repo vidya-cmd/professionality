@@ -1,2 +1,0 @@
-# professionality
-Posting my projects 
